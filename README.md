@@ -1,5 +1,5 @@
 
-~DXHOEIHO1~
+~DXHOEIHO~
 
 -RCNKBP-
 
