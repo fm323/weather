@@ -1,4 +1,3 @@
-# weather
 ~DXHOEIHO~
 
 *RCNKBP*
